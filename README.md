@@ -1,3 +1,3 @@
 # Alex Edwards PhD research
 
-Here you can find a brief overview of my PhD research. My name is Alex Edwards I am a
+I am a first year post graduate student at the University of Exeter and member of the Environmental Intelligence centre for doctoral training (CDT), which aims to 
